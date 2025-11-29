@@ -1,4 +1,4 @@
-Patrick Marcelo Araújo Silva Armani
+Patrick Armani
 
 
 Hello, GitHub! 👋
